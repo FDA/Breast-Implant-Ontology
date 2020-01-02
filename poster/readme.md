@@ -1,1 +1,1 @@
-publised poster using breast implant ontology
+publised poster describing breast implant ontology
